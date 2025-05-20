@@ -1,6 +1,4 @@
 
-
-
 We get some rules to follow
 That and this, these and those
 No one knows
